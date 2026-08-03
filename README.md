@@ -3,7 +3,7 @@
 
 - 👯 I’m looking to collaborate on **project ideas.**
 
-- 📫 How to reach me **akulkarn4@stevens.edu**
+- 📫 How to reach me **akashkulkarni530@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
